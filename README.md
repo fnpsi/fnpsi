@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my repos.
 - 📫 How to reach me: via the links under my profile.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ( . )( . ) are something I like.
+- ⚡ Fun fact: ( . )( . ) are a preference.
